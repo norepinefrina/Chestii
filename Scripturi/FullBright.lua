@@ -1,1 +1,1 @@
-"https://pastebin.com/raw/bycaZWSq"
+https://pastebin.com/raw/bycaZWSq
